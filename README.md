@@ -3,6 +3,6 @@
 
 ❌Thanks to [Kakashi](https://t.me/SIXTH_H0KAGE)
  ❌[Telegram network](https://t.me/Ft999_eXe)
-❌Any queries : [Contact](https://t.me/Invincible_itAchi)
+❌Any queries : [Contact](https://t.me/AftrrAcc)
 ❌
 
